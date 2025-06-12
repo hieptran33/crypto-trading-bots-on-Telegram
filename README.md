@@ -106,7 +106,7 @@ There are many Solana bots. Only Trojan combines:
 
 Click the link below to register with my affiliate code and start trading like a pro:
 
-👉 **[Register for Trojan Bot Now]([#your-affiliate-link](https://t.me/solana_trojanbot?start=r-justmek121))**
+👉 **[Register for Trojan Bot Now]((https://t.me/solana_trojanbot?start=r-justmek121))**
 
 Let Trojan handle the trading. You enjoy the gains.
 
